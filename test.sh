@@ -4,4 +4,7 @@ My next day - me new work!
 
 Another new additional info!
 
-Final! 
+Final!
+
+-----
+So, here will start our conflict
